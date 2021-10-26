@@ -1,3 +1,4 @@
 Sup i am scuffedweeb
+local weeb who plays bedwars
 
-ehm got this thingy here so :D
+i wanna learn how to code cool stuff
